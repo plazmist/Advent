@@ -1,0 +1,12 @@
+abba[mnop]qrst
+abcd[bddb]xyyx
+aaaa[qwer]tyui
+ioxxoj[asdfgh]zxcvbn
+itgslvpxoqqakli[arktzcssgkxktejbno]wsgkbwwtbmfnddt[zblrboqsvezcgfmfvcz]iwyhyatqetsreeyhh
+vqlnbtvojgdtchb[otldofiavlmzmcix]hqidiiujqigyojgrv[ozfdaqeikjttcugzudc]jcvznucmpzzwnnv[blfzwhciaomuugpmj]aabnfuksfyuzlif
+bttmazihwuehdishz[gsgmhoykohwafksz]mfwbwxsjwiktfuzsd[qbgwyirvwgqtnjqaci]zjmhwxbeqgkywzsr[xgaqywmxwwvmbvhfw]jpnhpbxgygkddeimwik
+ldmzuocyrnzdhakjzse[ppgxqgikmjrqzihzpwc]qyqshpkjozbkhly
+aba[bab]xyz
+xyx[xyx]xyx
+aaa[kek]eke
+zazbz[bzb]cdc
